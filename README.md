@@ -12,7 +12,7 @@ I am still in the process of putting in their lore. If there's a "✔" by their 
 - Luminary
 - Statical
 - Chris
-- Cyan
+- Cyanne
 - Kyle
 - Elizabeth
 - Basil
