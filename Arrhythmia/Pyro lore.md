@@ -6,7 +6,7 @@
 - Sexuality: Aroace
 - Species: Cloud
 - Height: 5'6"
-- 56 kg
+- Weight: 56 kg
 
 # Backstory
 
