@@ -1,5 +1,6 @@
 # Profile
 - Name: Luminary
+- Nickname: Lumi
 - Age: 20 (is actually 5 lol)
 - Gender: Enby
 - Pronouns: They/It
