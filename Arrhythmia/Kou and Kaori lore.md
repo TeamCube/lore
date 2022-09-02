@@ -47,5 +47,9 @@ Since the three are OCs, if they die, Arrhythmia itself will get destroyed.
 Kaori's ability is to do magic, Chiro has fire abilities, and Pyro has weather abilities but he doesn't use it very often.
 So when the Dark Hearts came in, Kaori has been brainwashed after getting infected by their virus, the Aurora Virus.
 The Aurora Virus has the ability to brainwash people into being allies with the Dark Hearts and eliminate Arrhythmians.
-
--TBA-
+Kaori is also the reason why Alice died.
+Kou made another world called Starspace to protect those not infected residents.
+After quite a lot of months, a non-omniscient character went to Kou and introduced himself as Samuel.
+He said that The Heart can eliminate the Dark Hearts so Kou sent a nanobot named Hal to get The Heart while Kou tries to control Arrhythmia.
+After Hal got The Heart, she inserted it into the server, curing all brainwashed residents and Kaori.
+The residents that aren't infected can go back to Arrhythmia safely.
