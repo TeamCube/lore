@@ -16,8 +16,8 @@ I am still in the process of putting in their lore. If there's a "✔" by their 
 - Kyle
 - Elizabeth
 - Basil
-- Ash.JS
-- Susie
-- Astra
+- Ash.JS ❗
+- Susie ❗
+- Astra ❗
 - Hades
-- Azazel
+- Azazel ❗
